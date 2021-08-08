@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @TakXshi
+- 👀 <--- use this emoji a lot 
+- 🌱 7th grade
+- 📫 Discord 𝙂𝙧𝙖𝙥𝙚<3#6044
